@@ -1,3 +1,0 @@
-Project Executable files have been uploaded in the below drive link
-
-https://drive.google.com/drive/folders/1_6byLUBVSLIFut5Kv8ozuCoff3TEr7u1?usp=sharing
